@@ -1,4 +1,4 @@
-# computer-training-palam
+\# computer-training-palam
 I-TEC India Technical Education Centre is the best Computer Training Institute in Palam offering job oriented computer courses with practical training.
 
 If you are looking for a reliable computer training institute in Palam Delhi, choosing the right place is essential for your career growth. A good institute provides practical training and industry-relevant courses.
